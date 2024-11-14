@@ -1,1 +1,71 @@
 # Jo-o-Felipe-flix
+
+
+Tropa de elite sinopse : Nascimento, capitão da Tropa de Elite do Rio de Janeiro, é designado para chefiar uma das equipes que tem como missão apaziguar o Morro do Turano. Ele precisa cumprir as ordens enquanto procura por um substituto para ficar em seu lugar. Em meio a um tiroteio, Nascimento e sua equipe resgatam Neto e Matias, dois aspirantes a oficiais da PM. Ansiosos para entrar em ação e impressionados com a eficiência de seus salvadores, os dois se candidatam ao curso de formação da Tropa de Elite.
+motoqueiro fantasma : Um jovem chamado Johnny Blaze aceita vender sua alma para salvar a vida do pai. Anos depois, trabalhando como um famoso dublê e motociclista, ele reencontra seu grande amor, Roxanne, que agora é repórter, e o homem com quem fez o pacto, Mefisto. Ele oferece a Johnny a chance de recuperar sua alma caso o destemido piloto aceite se transformar em um agente sobrenatural movido por vingança e justiça: o Motoqueiro Fantasma.
+
+carros sinopse : Ao viajar para a Califórnia, o famoso carro de corridas Relâmpago McQueen se perde e vai parar em Radiator Springs, uma cidadezinha na Rota 66. Ele conhece novos amigos e aprende lições que mudam sua forma de encarar a vida.
+
+cidade de Deus sinopse :Buscapé é um jovem pobre, negro e sensível, que cresce em um universo de muita violência. Ele vive na Cidade de Deus, favela carioca conhecida por ser um dos locais mais violentos do Rio. Amedrontado com a possibilidade de se tornar um bandido, Buscapé é salvo de seu destino por causa de seu talento como fotógrafo, o qual permite que siga carreira na profissão. É por meio de seu olhar atrás da câmera que ele analisa o dia a dia da favela em que vive, onde a violência aparenta ser infinita.
+
+ninho do mal sinopse :Tinja é uma jovem ginasta que sempre tenta agradar sua mãe exigente. Uma noite, ela encontra um ovo abandonado e passa a cuidar dele. Porém, o que sai do ovo é uma criatura monstruosa que vira a vida da garota de cabeça para baixo.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+           
